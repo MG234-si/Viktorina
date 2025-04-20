@@ -1,1 +1,1 @@
-Файл Viktorina ето словарь, а Veektorina ето уже викторина
+Файл Viktorina ето словарь, а Veektoreena ето уже викторина
